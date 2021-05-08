@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Fullsmiling
+- 👀 I’m interested in Drama and Entertainment Program.
+- 🌱 I’m currently learning Data Crawling or Analysis.
